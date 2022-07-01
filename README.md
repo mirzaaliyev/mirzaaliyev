@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Learning how to code.
+Designer who knows how to code.
